@@ -1,6 +1,5 @@
-# Hi there, I'm Ignacio 👋
-
-## I love trying out new fields, exploring them and learn on my way!
+# Hi there👋
+## Reach me on in/ignacio-sambrailo/
 
 
 
